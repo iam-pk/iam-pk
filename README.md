@@ -1,5 +1,8 @@
 # 💫 About Me:
-currently student <br>if i am not coding i will travelling<br>pronous:she,her<br>ask me about how to fix things<br>
+Currently a student with a love for learning and creating.  <br>
+When I’m not coding, I enjoy travelling and exploring new places.  <br>
+Pronouns: She / Her <br>  
+Always happy to help — ask me about how to fix things!<br>
 
 
 ## 🌐 Socials:
